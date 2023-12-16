@@ -1,0 +1,8 @@
+- Psycho
+- Hacker and programmer 
+- Developer 
+- Active in the fields of:
+- technology
+- Photoshop
+- Premiere
+- animation and modeling
